@@ -31,4 +31,4 @@ Every day, I strive to improve my skills and push the boundaries of what I can c
 ---
 
 ## **Contact Me**  
-📧 Email me: [damiiaguerou79@gmail.com](mailto:damiiaguerou79@gmail.com)
+📧 Email me: [alexanderdamianu79@gmail.com](mailto:alexanderdamianu79@gmail.com)
